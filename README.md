@@ -1,7 +1,8 @@
-![如何订阅 ChatGPT Plus](![image](https://github.com/worrall339/ChatGPT/assets/169753346/e6841c1a-012c-45a5-a72e-97780e6c15bb)
-)
 
 # 如何订阅 ChatGPT Plus：仅需美区 ID，无需虚拟信用卡
+
+![image](https://github.com/worrall339/ChatGPT/assets/169753346/2d8f134f-fb54-4781-aee3-0464f9eb0517)
+
 
 ## FOMEPay 虚拟信用卡：[https://www.fomepay.com/](https://gpt.fomepay.com/#/pages/login/index?d=Q3DD80)
 推荐一个虚拟信用卡开卡平台，包含香港、美国万事达VISA等多种卡头，0月费使用门槛极低，微信支付宝均可开通使用。支持开通各类海外平台：ChatGPT、Netflix、OnlyFans、Ebay、Shopify、Github、TikTok、Paypal 等各类订阅海淘平台。点击查看详情：[https://www.fomepay.com/](https://gpt.fomepay.com/#/pages/login/index?d=Q3DD80) 
